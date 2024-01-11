@@ -7,3 +7,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * prita pertiwi, [oo.or.id](https://oo.or.id).
+* Adolf Jenof, [linkedin.id](https://adolf.or.id).
